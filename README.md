@@ -1,3 +1,2 @@
 # RESUME
-
-<img width="805" height="800" alt="image" src="https://github.com/user-attachments/assets/1ab3cb12-3c0e-4aa6-bf68-bfe30c189a4f" />
+C:\Users\divye\Videos\Captures\Divyesh Gaygol - Resume - RESUME.pdf — Mozilla Firefox 15-09-2025 16_06_54.png
