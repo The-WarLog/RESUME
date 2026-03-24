@@ -1,3 +1,4 @@
 # RESUME
 
-<img width="831" height="1035" alt="Divyesh Gaygol&#39;s CV - RESUME pdf — Original profile — Mozilla Firefox 21-03-2026 23_23_00" src="https://github.com/user-attachments/assets/d8c22d5e-b7f1-45e4-bee7-8001a897f09e" />
+
+<img width="845" height="1038" alt="Divyesh Gaygol&#39;s CV - RESUME pdf — Original profile — Mozilla Firefox 24-03-2026 19_36_04" src="https://github.com/user-attachments/assets/12e33af0-d8ef-4bc3-9fb0-19c8321a3a6c" />
